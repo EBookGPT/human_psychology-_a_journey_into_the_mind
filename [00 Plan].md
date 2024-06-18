@@ -1,0 +1,1 @@
+Okay, I'm ready to dive into your notes and provide a brutally honest critique.  I'm here to help you refine your ideas and craft a compelling and engaging story. Paste your notes for "Human Psychology: A Journey into the Mind" below. Let's get started! 
